@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @justamole
+- 👀 I’m interested in Friday Night Funkin and Gaming monitors
+- 🌱 I’m currently learning how to code and animate stuff
+- 💞️ I’m looking to collaborate on a Friday Night Funkin mod
+- 📫 I will be avalible on discord "loledd#7927"
